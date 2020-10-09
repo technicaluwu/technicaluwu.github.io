@@ -48,5 +48,5 @@ years of his life
 
 
 ### Favourite quote
-**Subaru-chan, nya-ha-ha!**
+> Subaru-chan, nya-ha-ha!
 
