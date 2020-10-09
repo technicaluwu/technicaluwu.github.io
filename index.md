@@ -47,3 +47,6 @@ years of his life
 	covered in dirt and filth, and couldn't talk properly"
 
 
+### Favourite quote
+**Subaru-chan, nya-ha-ha!**
+
