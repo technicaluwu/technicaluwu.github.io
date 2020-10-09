@@ -32,7 +32,7 @@
 	from the bottom of his heart
 
 * hates weaklings
-* can get emotional when it comes to Crusch 
+* might get emotional when it comes to Crusch 
 
 
 ## History
