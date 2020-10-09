@@ -37,5 +37,13 @@
 
 ## History
 
-*to be continued...*
+* was born with cat like appendages
+* was mistreated as a child
+* was locked in the basement of the Argyle Mansion for the first nine
+years of his life
+* was barely cared for 
+* Crusch's description of him:
+	"a fragile boy who was painfully thin, was black from being 
+	covered in dirt and filth, and couldn't talk properly"
+
 
